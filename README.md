@@ -7,6 +7,6 @@
 my sona cuz idk what to put here yet
 </p>  
      ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=KlNGSJESTER&color=blue&flat&label=stalkers"></img>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=KlNGSJESTER&color=191970&flat&label=stalkers!!"></img>
 </p>  ⠀
 
