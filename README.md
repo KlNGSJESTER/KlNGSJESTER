@@ -1,6 +1,6 @@
 
 <p align="center">
-🎭 jester !! 18 . they / she pref  ⠀
+🎭 jester !! 18 . they / it pref but any will work idm
 <p align="center">
 <img width="250" height="300" alt="Image" src="https://github.com/user-attachments/assets/c9c797f7-d842-47c0-9416-188544e3ae48" />
 <p align="center">
