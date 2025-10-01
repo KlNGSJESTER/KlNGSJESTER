@@ -2,7 +2,7 @@
 <p align="center">
 🎭 jester !! 18 . they / them pref but any will work idm
 <p align="center">
-<img width="250" height="300" alt="Image" src="https://github.com/user-attachments/assets/c9c797f7-d842-47c0-9416-188544e3ae48" />
+<img width="300" height="400" alt="Image" src="https://github.com/user-attachments/assets/4b98a428-b925-4d4b-9369-314e9d727527" />
 <p align="center">
 my sona cuz idk what to put here yet
 </p>  
